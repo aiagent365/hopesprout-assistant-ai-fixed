@@ -1,0 +1,1 @@
+# hopesprout-assistant-ai-fixed
